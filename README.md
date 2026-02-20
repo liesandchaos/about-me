@@ -13,6 +13,11 @@
 ‎ ‎ |   i *NEVER* int first unless it's simply moving closer to you!!! PLEASE int first if you wish to hang out / talk with me !!!
 ‎ 
 ‎ 
+
+
+
+
+
 ‎ 
 . #  dni list‎ ‎ ‎ ‎ ‎ ‎ .
 
