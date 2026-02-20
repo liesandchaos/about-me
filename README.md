@@ -18,12 +18,12 @@
 
 ‎ - basic dni criteria
 
-- roleplayers
+‎ ‎ - roleplayers
  
 ‎ - fictionkin / kinnie / fiction-hearted and yumeshipper antis dni
 
-- literally ANY enemy of mine dni??? obviously
+‎ ‎ - literally ANY enemy of mine dni??? obviously
  
 ‎ - *over*sensitive people (im sorry i just cant deal with them </3)
 
-- probably more i can't think of
+‎ ‎ - probably more i can't think of
