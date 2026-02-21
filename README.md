@@ -1,4 +1,4 @@
-# about-me
+# liesandchaos
 <img width="1000" height="824" alt="image" src="https://github.com/user-attachments/assets/752a43df-5cfe-400c-93c6-db0c03a77875" />
 
 ‎ ‎ . #   why HELLOO!! this is just general info about me ‎ ‎ ‎ ‎ ‎ .
